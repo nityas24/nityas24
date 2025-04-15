@@ -1,4 +1,4 @@
-![Alt Text](https://github.com/nityas24/nityas24/blob/main/gif.gif?raw=true)
+![Alt Text](https://github.com/nityas24/nityas24/blob/main/gif2.gif?raw=true)
 
 ## Hi, I'm Nitya!
 
